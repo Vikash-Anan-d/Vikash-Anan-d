@@ -5,7 +5,6 @@ Email Me 👉 ✉️ **vikashanandmail@gmail.com** For Collaboration/Project or 
 
 -  **I’m currently working on:** Enter your project info here
 -  **I’m currently learning:** Data Science and Machine Learning
--  **I’m looking to collaborate on:** My Soul Chat Project
 -  **I’m looking for help with:** Job
 -  **Ask me about:** Collaboration, Tech Support
 -  **How to reach me:** vikashanandmail@gmail.com
